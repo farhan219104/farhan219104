@@ -23,7 +23,7 @@
 ✅ Web Page Content Optimization
 
 
-![image](https://github.com/code0214/code0214/assets/142180194/07f50cd2-a9b2-4435-ba79-b38717b09bfe)
+![image](https://github.com/whiteray0810/whiteray0810/blob/main/github_2.png)
 
 
                                               
